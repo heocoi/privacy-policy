@@ -49,7 +49,7 @@ This privacy policy may be updated from time to time. Any changes will be posted
 
 If you have questions about this privacy policy, please contact:
 
-**Email:** anhphong.pham@gmail.com
+**Email:** contact@anhphong.dev
 
 ---
 
